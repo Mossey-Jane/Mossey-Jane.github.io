@@ -1,2 +1,1 @@
-# Jane.github.io
-jane's love
+# www.janneyyu.com
